@@ -1,0 +1,8 @@
+![Desktop Screenshot 2024 04 18 - 01 26 54 68](https://github.com/abdelrahmanda/Coffee_consumption_dashboard/assets/144565933/b5f74e54-1a36-4bbf-8eb7-568e24070dea)
+![Desktop Screenshot 2024 04 18 - 01 28 58 81](https://github.com/abdelrahmanda/Coffee_consumption_dashboard/assets/144565933/46828f61-c479-4386-97ae-f9d45b44974a)
+![Desktop Screenshot 2024 04 18 - 01 27 05 37](https://github.com/abdelrahmanda/Coffee_consumption_dashboard/assets/144565933/ea5378dc-c9b1-48cc-a470-837dee644cb5)
+![Desktop Screenshot 2024 04 18 - 01 30 42 17](https://github.com/abdelrahmanda/Coffee_consumption_dashboard/assets/144565933/aef7a4f5-deea-47d9-93c7-4dc2a167231d)
+![Desktop Screenshot 2024 04 18 - 01 27 14 80](https://github.com/abdelrahmanda/Coffee_consumption_dashboard/assets/144565933/60b165d2-8ce8-4b06-bab1-f34854556fcc)
+![Desktop Screenshot 2024 04 18 - 01 31 56 84](https://github.com/abdelrahmanda/Coffee_consumption_dashboard/assets/144565933/305f45f3-933c-4902-81da-bcc4c5a1a438)
+![Desktop Screenshot 2024 04 18 - 01 27 22 87](https://github.com/abdelrahmanda/Coffee_consumption_dashboard/assets/144565933/f010bc55-4177-4fd2-b327-d15194ca92c2)
+![Desktop Screenshot 2024 04 18 - 01 33 07 88](https://github.com/abdelrahmanda/Coffee_consumption_dashboard/assets/144565933/c5bde6aa-4d79-4f57-bde4-c489cd2731ef)
